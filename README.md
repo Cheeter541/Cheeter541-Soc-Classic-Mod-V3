@@ -1,6 +1,6 @@
 Warning: Sell all of your apples before you download the mod!
 Credits to hiyall for teaching me, none of this would've been possible without him
-https://www.mediafire.com/file/eru891slzuelqbp/Dr.+NaN+SoC+Classic+V3.apk/file
+https://www.mediafire.com/file/eru891slzuelqbp/Cheeter541_SoC_Classic_V3.apk/file
 New Feature:
 (1) Able to trade/sell as much as you want
 Old Features: 
